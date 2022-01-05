@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @karin167
 - 👀 I'm proficient in coding.
 
-- 🌱 I’m currently learning Web Development in DCI Academy, Berlin.
+- 🌱 I learned  Web Development in DCI Academy, Berlin.
 
 - ♡
      I enjoy coding and creating new things. I am extremely motivated to learn & develop my skills, and find new challenges.
