@@ -11,3 +11,4 @@
      My strengths include social media marketing and branding.
      
 - 📫 How to reach me: karin167bz@gmail.com
+- my portfolio : https://karin-benzaken.com/
