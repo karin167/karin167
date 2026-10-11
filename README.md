@@ -12,3 +12,4 @@
      
 - 📫 How to reach me: karin167bz@gmail.com
 - my portfolio : https://karin-benzaken.com/
+- My second GitHub account https://github.com/km2026
